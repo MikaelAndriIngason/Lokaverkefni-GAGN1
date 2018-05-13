@@ -2,4 +2,4 @@
 
 
 #### nafn á gagnagrunni:
-0106012508_hopverk_gang1
+0106012508_hopverk_gagn1
